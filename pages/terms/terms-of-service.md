@@ -41,5 +41,4 @@ TheraJourney reserves the right, at its sole discretion, to modify or replace th
 
 If you have any questions about these Terms, please contact us at:
 
-- Email: [legal@therajourney.com]
-- Address: [Company Address]
+- Email: therajourney1@gmail.com
