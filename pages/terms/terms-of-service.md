@@ -1,6 +1,6 @@
 # Terms of Service
 
-_Last updated: [Current Date]_
+_Last updated: 2025-03-17_
 
 ## Agreement to Terms
 
